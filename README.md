@@ -1,6 +1,6 @@
 
 
-Main Game -> [THE FRIENDLY RPG WHERE NOBODY HAS TO DIE..](https://ezunblocktheopps/UNDERTALE/) -by Me
+Main Game -> [THE FRIENDLY RPG WHERE NOBODY HAS TO DIE..](https://ezunblocktheopps/UNDERTALE/UNDERTALE.html) -by Me
 
 Special Versions
  -> [Undertale : Sans Battles](https://ezunblocktheopps/UNDERTALE/SansBattles.html) -by Me
