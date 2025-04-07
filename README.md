@@ -3,7 +3,7 @@ Sigmi on top no diddy
 
 
 
-Main Game -> (https://sansz.kro.kr/UNDERTALE.html) -by not me but me
+Main Game -> [yes](https://sansz.kro.kr/UNDERTALE.html)) -by not me but me
 
 Special Versions
  -> [Undertale : Sans Battles](https://sansz.kro.kr/SansBattles.html) -by not me but me
